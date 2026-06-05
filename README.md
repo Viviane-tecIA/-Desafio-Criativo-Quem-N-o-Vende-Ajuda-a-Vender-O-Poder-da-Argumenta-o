@@ -1,4 +1,4 @@
-🎯 Desafio Criativo: Quem Não Vende, Ajuda a Vender! O Poder da Argumentação
+🎯 Desafio Criativo:
 
 ​🚀 Manual do Estudante de Alto Valor: Sua Rotina de Elite
 ​Transforme sua rotina de estudos em um ritual de crescimento. Siga este plano para dominar qualquer conteúdo:
